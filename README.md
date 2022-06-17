@@ -1,2 +1,0 @@
-# Alfredoprieto
-mi pagina web
